@@ -1,0 +1,1 @@
+In southern China, roast goose is a variety of siu mei, or roasted meat dishes, within Cantonese cuisine. It is made by roasting geese with seasoning often in a charcoal furnace at high temperature. Roasted geese of high quality have crisp skin with juicy and tender meat. Slices of roast goose may be served with plum sauce.
